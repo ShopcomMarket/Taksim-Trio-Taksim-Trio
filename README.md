@@ -9,7 +9,7 @@ https://www.shopcom.tn/product/taksim-trio-taksim-trio/torrent-download
 Purchase link :
 https://www.shopcom.tn/product/taksim-trio-taksim-trio/
 
-Product Price : 5 $
+Product Price : 10 $
 
 Payment :
 https://www.shopcom.tn/payments
